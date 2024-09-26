@@ -20,6 +20,8 @@ https://elabsheet.org/elab/taskpads/show/t8j2ag5gmd/
 
 🔴 [ Hard ] - [ Mysthaven's Deadly Dance ]<br/>  https://elabsheet.org/elab/taskpads/show/z6tw9s8k2x/
 
+🔴 [ Hard ] - [ Arther's Luminous Ores Conundrum ]<br/>https://elabsheet.org/elab/taskpads/show/law8pzxd18/
+
 ⚫ [ Evil ] - [ The Forsaken Labyrinth of Lost Souls ]<br/>  https://elabsheet.org/elab/taskpads/show/1ms8my0pj1/
 
 ---
