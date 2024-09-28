@@ -24,4 +24,6 @@ https://elabsheet.org/elab/taskpads/show/t8j2ag5gmd/
 
 ⚫ [ Evil ] - [ The Forsaken Labyrinth of Lost Souls ]<br/>  https://elabsheet.org/elab/taskpads/show/1ms8my0pj1/
 
+⚫ [ Evil ] - [ The Spellbound Garden of Moonblossom Boutique ]<br/>  https://elabsheet.org/elab/taskpads/show/v6f3sdig9o/
+
 ---
